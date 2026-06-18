@@ -1,2 +1,0 @@
-# Mr.Ragu
-Student
